@@ -1,1 +1,1 @@
-# shagzod-inobatxon-weddingday
+# shagzod-inobat-weddingday
